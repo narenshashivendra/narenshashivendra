@@ -5,7 +5,7 @@
 
 - I’m currently learning **Web development & Java**
 
-- How to reach me **shivendrapratapsingh2002ss@gmail.com**
+- How to reach me **19BCS1199@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
